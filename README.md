@@ -1,2 +1,2 @@
 # cool_plots
-Moooom look at the cool plot i made &lt;3
+Moooom look at the cool plots i made &lt;3
